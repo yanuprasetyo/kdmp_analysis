@@ -6,8 +6,8 @@ diterbitkan di *The Conversation Indonesia*.
 
 ## Penulis
 - Yanu Endar Prasetyo (Pusat Riset Kependudukan, BRIN)
-- Nimas Maninggar
-- Shabilla Rossinda
+- Nimas Maninggar (Pusat Riset Kependudukan, BRIN)
+- Shabilla Rossinda (Mahasiswa Administrasi Publik, Universitas Brawijaya)
 
 ---
 
